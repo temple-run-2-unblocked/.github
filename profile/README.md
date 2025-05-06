@@ -2,6 +2,8 @@ If you've ever dipped your toes into the endless runner genre, there's no way yo
 
 More than just casual fun, *Temple Run 2* is a fast-paced journey that tests your reflexes, focus, and… yes, even your patience.Temple Run 2 Unblocked , in particular, lets you jump into the action anytime, anywhere — even in schools or offices where access to games might be restricted.
 
+👉 [Click to play Temple Run 2 Unblocked completely free!](https://1kb.link/KLR3wr)
+
 ## **What Is Temple Run 2 Unblocked**
 
 Temple Run 2 is the second installment in the mega-hit Temple Run series, developed by **Imangi Studios** — the same minds behind the original success. Since its release, the game has become a global phenomenon, with over 1 billion download on Google Play alone and an average rating of 4.2/5. It's been praised by players worldwide for its engaging gameplay, vibrant graphics, and innovative features that have kept it relevant for over a decade.
